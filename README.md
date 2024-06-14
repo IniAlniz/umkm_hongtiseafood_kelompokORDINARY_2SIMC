@@ -1,0 +1,1 @@
+# umkm_hongtiseafood_kelompokORDINARY_2SIMC
